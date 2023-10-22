@@ -1,12 +1,6 @@
-THIS INSHACKLE BY ANDRUCKZ 💜
 
-FOLLOW ME ON INSTAGRAM ❤️
 
-YOU CAN ASK ANY DOUBTS ❤️
-
-MY INSTAGRAM ID - Search andruckz ON INSTAGRAM 🫂
-
-ABOUT THIS TOOL 🔥
+ABOUT THIS TOOL 
 
 THIS IS A #instagramautomation Tool for instagram followers
 this will follow and unfollow celebritys and give you orginal  followers
